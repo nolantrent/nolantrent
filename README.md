@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Trenton Nolan
-- 👀 I’m interested in ... claiming my $50,000
+- 👀 I’m interested in ... 
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...sweepstake.com
+- 💞️ I’m looking to collaborate on
 - 📫 How to reach me ... slimmm..boogie21@icloud.com/ 9183185889
 
 <!---
