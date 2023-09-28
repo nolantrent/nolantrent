@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on
-- 📫 How to reach me ... slimmm..boogie21@icloud.com/ 9183185889
+- 📫 How to reach me ... slimmm..boogie21@icloud.com/ 5399950877
 
 <!---
 nolantrent/nolantrent is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
